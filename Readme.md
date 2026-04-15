@@ -10,3 +10,4 @@ Saiba mais em [Kauã Belissimo](https://github.com/KauaBelissimo)
 
 Gostou do curso? Quer mais? Ajude com uma doação, até um café é válido =)
 
+Jesus é o Único Senhor e Salvador!
